@@ -1,1 +1,0 @@
-# caradec.com.br
